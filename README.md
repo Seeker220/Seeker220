@@ -4,7 +4,7 @@ Asmit Manab Karmakar
 
 18 M
 
-📖🏫 B.Tech 1st Year MnC IIT Delhi
+📖🏫 B.Tech 2nd Year CSE IIT Delhi
 
 Ex-Student RKMV NDP
 
